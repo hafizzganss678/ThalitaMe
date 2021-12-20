@@ -3,21 +3,30 @@
 ```
 20 Desember 2021
 ```
-![](https://komarev.com/ghpvc/?username=hafizzganss678&label=README)
-
-
-![My Card ](https://cardivo.vercel.app/api?name=di baca yaa&description=hai cantik, pasti lu bakal hilangkan gada orang yang gabisa ngertiin lu lagi , sekarang tenang aja oke.. hafiz pasti jagain Thalita semampu Hafizz yaaa,, lu tau gaaa guaa sayanggg bangett sama luu apapun yang terjadi jangan malu malu bilang ke hafizz yaaa !! Hafiz di sini bakal selalu ada buat litaaa >_< , jangan sedih lagi yaa cantikk walaupun kita ga sekampung Hafizz pasti bakal tetep jagain Thalita oke?, Jadii Thalita jangan nangis atau panik lagi kalo ada apa apa :), Hafizz tu paling ga suka kalo liat Thalita nangis😾jadii Thalita gbole nangis mlu atau sedih harusss tetap tersenyum 😾😾,(Anti Copy Right by Hafizz 2k21)&image=https://b.top4top.io/p_2090f6xvx0.jpg&backgroundColor=%23ecf0f1&instagram=@hafizz_stylee&github=hafizzganss678&whatsapp=+6285892842367&pattern=leaf&colorPattern=%23eaeaea)
+### [`hai cantik, pasti lu bakal hilangkan gada orang yang gabisa ngertiin lu lagi , sekarang tenang aja oke.. hafiz pasti jagain Thalita semampu Hafizz yaaa,, lu tau gaaa guaa sayanggg bangett sama luu apapun yang terjadi jangan malu malu bilang ke hafizz yaaa !! Hafiz di sini bakal selalu ada buat litaaa >_< , jangan sedih lagi yaa cantikk walaupun kita ga sekampung Hafizz pasti bakal tetep jagain Thalita oke?, Jadii Thalita jangan nangis atau panik lagi kalo ada apa apa :), Hafizz tu paling ga suka kalo liat Thalita nangisjadii Thalita gbole nangis mlu atau sedih harusss tetap tersenyum `](https://wa.me/6285892842367?text=Hayy+fizz)
 
 ___
 
-<p align="center">
-
-  <a href="https://github.com/hafizzganss678"><img title="Author" src="https://img.shields.io/badge/Author-Hafizz-red.svg?style=for-the-badge&logo=github" /></a>
-
-
-
-</p>
+![My Card ](https://cardivo.vercel.app/api?name=Untuk muu&description=Beruntung banget yaa gua punya cwe kek lu dah cantikkk, maniss, gemess kalo marah dehh pokoknyaaa Thalita tuu cantik yang bilang Thalita jelek mana sini byeone, Inti nya Semangat ya cantikk gabole marah Mulu apalagi blockir hafizz baay lopyuu." (Anti Copy Right by Hafizz 2k21)&image=https://b.top4top.io/p_2090f6xvx0.jpg&backgroundColor=%23ecf0f1&instagram=@hafizz_stylee&github=hafizzganss678&whatsapp=+6285892842367&pattern=leaf&colorPattern=%23eaeaea)
 
 ___
 
-### [`Beruntung banget yaa gua punya cwe kek lu dah cantikkk, maniss, gemess kalo marah dehh pokoknyaaa Thalita tuu cantik yang bilang Thalita jelek mana sini byeone😾, Inti nya Semangat ya cantikk gabole marah Mulu apalagi blockir hafizz baay lopyuu😠💗`](https://wa.me/6285892842367?text=Hayy+fizz)
+<details>
+ <summary><b>KLIK </b></summary>
+
+> I love youu thalitaa 
+ > 
+ > Jangan Suka marah marah yaa !!
+  >
+  > Jangan blockir aku mulu _-
+  >
+ </details>
+ 
+
+
+# Whatsapp kuu 
+[![WhatsApp](https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/6285892842367)
+
+### Spotify Playing 🎧
+
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=314iqaa5wlnytjblf2yfa4es5aly&cover_image=true&theme=novatorem)](https://spotify-github-profile.vercel.app/api/view?uid=314iqaa5wlnytjblf2yfa4es5aly&redirect=true)
