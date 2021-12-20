@@ -4,17 +4,17 @@
 `hai cantik, pasti lu bakal hilangkan gada orang yang gabisa ngertiin lu lagi , sekarang tenang aja oke.. hafiz pasti jagain Thalita semampu Hafizz yaaa,,`
 `lu tau gaaa guaa sayanggg bangett sama luu apapun yang terjadi jangan malu malu bilang ke hafizz yaaa !! Hafiz di sini bakal selalu ada buat litaaa >_< , `
 `jangan sedih lagi yaa cantikk walaupun kita ga sekampung Hafizz pasti bakal tetep jagain Thalita oke?, Jadii Thalita jangan nangis atau panik lagi kalo ada apa apa :),`
-`Hafizz tu paling ga suka kalo liat Thalita nangisjadii Thalita gbole nangis mlu atau sedih harusss tetap tersenyum `
+`Hafizz tu paling ga suka kalo liat Thalita nangisjadii Thalita gbole nangis mlu atau sedih harusss tetap tersenyum 😾😾`
 
 ___
 
-`Beruntung banget yaa gua punya cwe kek lu dah cantikkk, maniss, gemess kalo marah dehh pokoknyaaa Thalita tuu cantik yang bilang Thalita jelek mana sini byeone, Inti nya Semangat ya cantikk gabole marah Mulu apalagi blockir hafizz baay lopyuu`
+`Beruntung banget yaa gua punya cwe kek lu dah cantikkk, maniss, gemess kalo marah dehh pokoknyaaa Thalita tuu cantik yang bilang Thalita jelek mana sini byeone😏, Inti nya Semangat ya cantikk gabole marah Mulu apalagi blockir hafizz baay lopyuu🖤`
 
 ___
 <details>
  <summary><b>PENCET !!!  </b></summary>
 
-> I love youu thalitaa 
+> I love youu thalitaa 
  > 
  > Jangan Suka marah marah yaa !!
   >
