@@ -7,12 +7,12 @@
 
 ___
 
-![My Card ](https://cardivo.vercel.app/api?name=Untuk muu&description=Beruntung banget yaa gua punya cwe kek lu dah cantikkk, maniss, gemess kalo marah dehh pokoknyaaa Thalita tuu cantik yang bilang Thalita jelek mana sini byeone, Inti nya Semangat ya cantikk gabole marah Mulu apalagi blockir hafizz baay lopyuu." (Anti Copy Right by Hafizz 2k21)&image=https://b.top4top.io/p_2090f6xvx0.jpg&backgroundColor=%23ecf0f1&instagram=@hafizz_stylee&github=hafizzganss678&whatsapp=+6285892842367&pattern=leaf&colorPattern=%23eaeaea)
+![My Card ](https://cardivo.vercel.app/api?name=Untukmu%20&description=Beruntung banget%20yaa gua punya%20cwe kek%20lu dah cantikkk%20maniss gemess kalo%20marah dehh pokoknyaaa%20Thalita tuu cantik%20yang bilang Thalita%20jelek mana sini%20byeone%20inti nya Semangat%20ya cantikk gabole%20marah Mulu apalagi%20blockir hafizz20baay lopyuu." (Anti Copy Right by Hafizz 2k21)&image=https://b.top4top.io/p_2090f6xvx0.jpg&backgroundColor=%23ecf0f1&instagram=@hafizz_stylee&github=hafizzganss678&whatsapp=+6285892842367&pattern=leaf&colorPattern=%23eaeaea)
 
 ___
 
 <details>
- <summary><b>KLIK </b></summary>
+ <summary><b> PENCET !!! </b></summary>
 
 > I love youu thalitaa 
  > 
